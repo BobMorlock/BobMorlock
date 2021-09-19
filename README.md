@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BobMorlock
+- 👀 I’m interested in preserving the past
+- 🌱 I’m currently learning the blade
+- 💞️ I’m looking to collaborate on past preservation
+- 📫 How to reach me ... You don't.
